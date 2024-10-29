@@ -1,1 +1,1 @@
-https://docs.google.com/document/d/1ocoP1U8cobADxtTBxC2pdn93k71sJWcKqQcLPAhqXec/edit?usp=sharing
+![image](https://github.com/user-attachments/assets/ebe20d5e-c550-4f8d-a697-d31fd604d927)
